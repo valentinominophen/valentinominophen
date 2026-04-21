@@ -12,7 +12,7 @@ STATICMOTH, MURDERMEDIA AND GUITARSPEAR TRUTHER ‼️‼️ (if you saw me sayi
 
 some of my interests: hazbin hotel, dandy's world, gothic/classic lit, US + world politics, history, the glass scientists, helluva boss, 99NITF, scary shawarma kiosk, schoolhouse rock, woody guthrie
 
-main fictionkins ☆ angel dust, lute, edward hyde, squirrelflight, frankenstein's creature, henry clerval, stolas, vox, alastor, goob, squirm, henry jekyll, eevee, tweek tweak, rachel pidgley, jonathan harker, justine moritz, zeezi, robert lanyon
+main fictionkins ☆ angel dust, lute, edward hyde, squirrelflight, frankenstein's creature, henry clerval, stolas, vox, alastor, goob, squirm, rodger, henry jekyll, eevee, tweek tweak, rachel pidgley, jonathan harker, justine moritz, zeezi, robert lanyon
 
 F/Os ☆ carmilla carmine, vincent whittman, alastor (ironically enough), victor frankenstein, elizabeth lavenza, jasper kaylock
 
