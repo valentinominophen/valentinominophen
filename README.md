@@ -26,6 +26,8 @@ he/moth/they/love/deer, **heavy pref** on moth/moths + deer/deers
 
 **DNI IF YOU SHIP ANGELVAL OR STATICDUST, OR IF YOU SEXUALIZE ALASTOR EW EW EWWWWWWWW**
 
+i don't care enough to put specific fandoms on my DNI or name drop people. if you and i are on bad terms or if i block then it should be obvious i don't want you interacting.
+
 <img src="https://64.media.tumblr.com/d3fac596a2ea155a44a8c402daabf013/f6b3d2e571cddd7b-c7/s1280x1920/86b26d0b5e718d662fe9048f56f896fb4886c730.pnj"/>
 
 i have a discomfort for non-platonic huskerdust and emilute as well as radiostatic, but not an outright DNI. may block if i get uncomfortable though.
