@@ -6,7 +6,7 @@
 
 **valentino / val** or angel dust, vincent, alastor, rosie
 
-he/moth/they/love/deer, **heavy pref** on moth/moths + deer/deers
+he/moth/they/love/deer/static, **heavy pref** on moth/moths + deer/deers
 
 19 <img src="https://64.media.tumblr.com/305eb2f82e020ba6a626202694e1b629/f9d8dc1afc55152e-81/s75x75_c1/8029c226443d021e2dbf165abb2696ebb1ccfc7a.gifv"/> stupid sparklemoth deer thing <img src="https://64.media.tumblr.com/8da1ab6a2b8a7e81c5916802fe4b470a/345ada277f272527-22/s75x75_c1/e6cd9cedc994b505dedfdb761c4d8668aa61b2a9.gifv"/> ESSA/ESP handler (hazbin + multifandom ESSAs) <img src="https://64.media.tumblr.com/7723e883ed36b472998626006b7764a9/f4d52b788dc9d5fb-07/s75x75_c1/a91aa92c5767ad578711d73b78cb88b024e6a3dc.gifv"/> autistic, anxious + misophonic, as well as other health shit <img src="https://64.media.tumblr.com/30fd4954e77c5846054adba6e71dec8d/e95425e74245493d-84/s75x75_c1/efcc936c9aea944d4a7fa616090b47a727f2ce52.gifv"/> therian + otherkin fictionkin <img src="https://64.media.tumblr.com/766e5b5344bed6be589f5f7a5c25982a/343e2a72052f2ac3-d7/s75x75_c1/fca6d95e7698520630883d204aea531314867125.gifv"/> cat owner since forever
 
