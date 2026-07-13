@@ -34,6 +34,8 @@ i don't support vivziepop or qwel, i'm just a dandys world + hellaverse fan
 
 autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfunction, hypersexuality, ARFID and OAB. please interact with caution !! if i do something that upsets you then please tell me !
 
+i dont care for queer discourse, do not bring it here or on any of my socials #IDoNotCare
+
 <img src="https://64.media.tumblr.com/869027d88e56c7a7a92e2ccdc7fafa5a/8ac72bb49761ea20-14/s1280x1920/ffd33169741eb938949eb628a8b5ab6a325f214c.gifv"/>
 
 [tiktok](https://tiktok.com/@valentinominophen) ☆ [strawpage](https://valentinominophen.straw.page) ☆ [pinterest](https://pin.it/7y8uIRTUT) ☆ [instagram](https://instagram.com/valentinominophen) ☆ [twitter](https://x.com/@valminophen) ☆ [pronouns.cc](https://pronouns.cc/sparklemoths) ☆ [atabook](https://valentinominophen.atabook.org)
