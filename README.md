@@ -36,4 +36,4 @@ autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfuncti
 
 <img src="https://64.media.tumblr.com/869027d88e56c7a7a92e2ccdc7fafa5a/8ac72bb49761ea20-14/s1280x1920/ffd33169741eb938949eb628a8b5ab6a325f214c.gifv"/>
 
-[tiktok](https://tiktok.com/@valentinominophen) ☆ [strawpage](https://valentinominophen.straw.page) ☆ [pinterest](https://pin.it/7y8uIRTUT) ☆ [instagram](https://instagram.com/valentinominophen) ☆ [twitter](https://x.com/@valminophen) ☆ [pronouns.cc](https://pronouns.cc/sparklemoths)
+[tiktok](https://tiktok.com/@valentinominophen) ☆ [strawpage](https://valentinominophen.straw.page) ☆ [pinterest](https://pin.it/7y8uIRTUT) ☆ [instagram](https://instagram.com/valentinominophen) ☆ [twitter](https://x.com/@valminophen) ☆ [pronouns.cc](https://pronouns.cc/sparklemoths) ☆ [atabook](https://valentinominophen.atabook.org)
