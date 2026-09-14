@@ -38,7 +38,7 @@ i have a discomfort for non platonic huskerdust but shippers can interact
 
 i don't support vivziepop, i'm just a hellaverse fan
 
-autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfunction, hypersexuality, ARFID and OAB. please interact with caution !! if i do something that upsets you then please tell me !
+autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfunction, hypersexuality, ARFID, OAB, RSD, iron deficiency + more. please interact with caution !! if i do something that upsets you then please tell me !
 
 i am a better listener than i am a responder, dont take it personal if i react to ur msg instead of reply !! just know that i am listening, i just dont know what to say in response
 
