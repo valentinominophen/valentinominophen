@@ -42,7 +42,7 @@ autistic misophonic w / GAD, PTSD, a traumatic brain injury, executive dysfuncti
 
 i am a better listener than i am a responder, dont take it personal if i react to ur msg instead of reply !! just know that i am listening, i just dont know what to say in response
 
-i dont care for identity discourse of any kind, do not bring it here or on any of my socials #IDoNotCare
+i dont care for discourse of any kind, do not bring it here or on any of my socials #IDoNotCare, if ur genuinely not harming anyone or yourself thats all that matters
 
 unless ur on my tiktok or instagram most of my sites are 18+ and are NOT intended for younger people
 
