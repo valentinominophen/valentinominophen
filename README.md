@@ -1,8 +1,8 @@
-<img src="https://64.media.tumblr.com/69c414df0f3373f3d0809662098ce5e6/1539e010ce8fa124-ac/s2048x3072/73f60aad1fe542eec6c1c6c147dbf8562792f18d.pnj"/>
+<img src="https://64.media.tumblr.com/3ae8f31e844fb37ade05b05d89de8bd3/eb5e40a4245fc7b4-66/s1280x1920/5dbb81cb786f963abaeba8be052ab44c48313d29.gifv"/>
  
-<img src="https://i.postimg.cc/fRtNs3r3/text.gif"/>
+<img src="https://i.postimg.cc/pLLp2P0K/text-(1).gif"/>
 
-<img src="https://64.media.tumblr.com/8283675b1863125eaa3dd8bd2cef0311/1539e010ce8fa124-52/s2048x3072/e513165d567ba48380ae4bdddd99ba53e0908aba.pnj"/>
+<img src="https://64.media.tumblr.com/3ae8f31e844fb37ade05b05d89de8bd3/eb5e40a4245fc7b4-66/s1280x1920/5dbb81cb786f963abaeba8be052ab44c48313d29.gifv"/>
 
 **valentino** or *angel dust, moxxie, vivienne* !!
 
